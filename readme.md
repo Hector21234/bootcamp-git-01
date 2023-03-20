@@ -1,1 +1,1 @@
-Hector Albors Gonzalez
+Hector Albors González
